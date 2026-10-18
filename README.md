@@ -27,4 +27,4 @@ Levo a sério a qualidade do que entrego: número que vai para o cliente é conf
 
 ## Contato
 
-[LinkedIn](https://www.linkedin.com/in/jose-matias-da-rocha-neto-368ab13aa)
+[LinkedIn](https://www.linkedin.com/in/jose-matias-neto)
